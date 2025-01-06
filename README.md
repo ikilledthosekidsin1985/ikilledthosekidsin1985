@@ -2,8 +2,8 @@
 
 ----------------------------------------------- **WELCOME TO MY PAGE!! YOU CAN CALL ME _WILLIAM_** -----------------------------------------------
 ⋆˖⁺‧₊☽◯☾₊‧⁺˖⋆ **DNI LIST** ⋆˖⁺‧₊☽◯☾₊‧⁺˖⋆ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⛧☾༺♰༻☽⛧ **INT LIST** ⛧☾༺♰༻☽⛧
-* Pedophiles
-* Willmike shippers
-* Cassidy IRLS/KINS/FICTIVES
+● ● Pedophiles   
+● Willmike shippers  
+● Cassidy IRLS/KINS/FICTIVES
   
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎ ![image](https://github.com/user-attachments/assets/232094d6-2425-44b8-86b7-54e79cb4365f)
