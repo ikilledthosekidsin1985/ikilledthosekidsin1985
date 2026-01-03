@@ -6,7 +6,6 @@
   That being said I don't do well with doubles.
   Afton kids you can talk to me ^_^ I swear I'm not evil.
   
-  I'm always here to listen to anyone talk about anything, I'm here for anyone.
   I use He/Him and am male. I'm often sitting with my best friend, or my son.
   
   Fredbears Family Diner! A server run by me and close friends. Designed for FnaF kins or anyone related to that --> https://discord.gg/5gNEmt7S6e
