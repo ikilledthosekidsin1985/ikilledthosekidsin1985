@@ -6,7 +6,7 @@
   Feel free to interact with me, I would adore talking to anyone. FNaF or not, I'm overall a social person.
   
   That being said I don't do well with doubles.
- Afton kids you can interact with me, I'm not evil I swear. Don't be afraid to approach me
+ Afton kids or sourcemates you can interact with me, I'm not evil I swear. Don't be afraid to approach me
   
   I use He/Him pronouns, C+H are always loved when I'm alone, but with my friends most of them are uncomfortable with it. 
   
