@@ -11,3 +11,19 @@
   I use He/Him pronouns, C+H are always loved when I'm alone, but with my friends most of them are uncomfortable with it. 
   
   Fredbears Family Diner! A server run by me and close friends. Designed for FnaF kins or anyone related to that --> https://discord.gg/5gNEmt7S6e
+
+
+ .
+
+.
+ 
+.
+  
+
+.
+
+
+.
+
+<img width="247" height="266" alt="image" src="https://github.com/user-attachments/assets/62cd92a5-7531-4acf-bcbc-87ebb40e2209" />
+he looks quite like me but he is green with spikey hair
