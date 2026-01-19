@@ -5,7 +5,7 @@
   
   Feel free to interact with me, I would adore talking to anyone. FNaF or not, I'm overall a social person.
   
-  That being said I don't do well with doubles.
+  That being said I don't do well with doubles or doubles of my son Michael, not a strict dni you can still talk to me just be aware if I'm awkward. It's not on purpose I swear, everyones very sweet
  Afton kids or sourcemates you can interact with me, I'm not evil I swear. Don't be afraid to approach me
   
   I use He/Him pronouns, C+H are always loved when I'm alone, but with my friends most of them are uncomfortable with it. 
