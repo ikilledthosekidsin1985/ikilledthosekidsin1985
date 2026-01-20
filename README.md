@@ -8,7 +8,7 @@
   That being said I don't do well with doubles or doubles of my son Michael, not a dni you can still talk to me just be aware if I'm awkward. It's not on purpose I swear, everyones very sweet.
  Afton kids or sourcemates you can interact with me, I'm not evil I swear. Don't be afraid to approach me
   
-  I use He/Him pronouns, C+H are always loved when I'm alone, but with my friends most of them are uncomfortable with it. 
+  I use He/Him pronouns, C+H are always loved when I'm alone, but with my friends most of them are uncomfortable with it. DONT CALL ME MR FAT!!!!!!!!!!! IM NOT MR FAT!!!!!!!
   
   Fredbears Family Diner! A server run by me and close friends. Designed for FnaF kins or anyone related to that --> https://discord.gg/5gNEmt7S6e
 
