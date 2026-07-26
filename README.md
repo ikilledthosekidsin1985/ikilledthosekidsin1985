@@ -1,5 +1,3 @@
-<p align="center"> $\color{Purple}\huge{\textsf{William Afton (FNaF) IRL/DA}}$
-
  <p align="center"> <img width="736" height="245" alt="image" src="https://github.com/user-attachments/assets/543d5ba8-8b22-478a-9f89-75c60f6bb035" />
 
 <p align="center"> <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/a3426d01-9c79-421f-a67f-e818438a765a" />
